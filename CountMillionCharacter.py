@@ -158,7 +158,7 @@ Their armed staves in charge, their beavers down,
 Their eyes of fire sparking through sights of steel
 And the loud trumpet blowing them together,
 Then, then, when there was nothing could have stay'd
-My father from the breast of Bolingbroke,
+My father from the breast of Bolingbroke,a
 O when the king did throw his warder down,
 His own life hung upon the staff he threw;
 Then threw he down himself and all their lives
